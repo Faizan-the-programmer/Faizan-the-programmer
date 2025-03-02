@@ -8,5 +8,5 @@
 
 ## Contact links
 
-- https://www.instagram.com/mohammedfaizan785/
-- faizanequadeer@gmail.com
+- https://www.instagram.com/dusk_ditty.1064/
+- faizanthestudentt@gmail.com
